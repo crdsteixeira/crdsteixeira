@@ -1,1 +1,1 @@
-Environmental Engineer (MSc) currently studying the Masters in Science and Data Engineering @ FEUP | Data Engineer @ DataCentric
+Environmental Engineer (MSc) currently studying the Masters in Science and Data Engineering @ FEUP | Machine Learning Engineer @ Seven.One Tech Hib
